@@ -1,1 +1,0 @@
-# lab_summer_test
